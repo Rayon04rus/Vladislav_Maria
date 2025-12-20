@@ -1,2 +1,2 @@
-# Свадьба Роман & Юлия
-# https://rayon04rus.github.io/Roman_Julia/
+# Свадьба Владислав & Мария
+# https://rayon04rus.github.io/Vladislav_Maria/
